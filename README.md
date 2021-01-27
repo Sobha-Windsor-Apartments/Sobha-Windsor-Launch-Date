@@ -2,7 +2,6 @@
 <br/><h3>Refer:</h3>
 <ul>
 <br/><li>https://www.commonfloor.com/forum/5fe17df4e7134-sobha-windsor-launch-date-www.sobhawindsor.gen.in</li>
-<br/><li>https://quizlet.com/in/557607051/sobha-windsor-launch-date-flash-cards</li>
 <br/><li>http://wikimapia.org/40692371/Sobha-Windsor-Launch-Date</li>
 <br/><li>https://calendly.com/sobhawindsor-gen-in/sobha-windsor-launch-date</li>
 <br/><li>https://bangalore.in.locan.to/ID_4792272108/Sobha-Windsor-Launch-Date.html</li>
